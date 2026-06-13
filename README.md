@@ -1,6 +1,6 @@
 <img width="1280" height="350" alt="3164" src="https://github.com/user-attachments/assets/297f97d9-d5f6-4360-b3ff-8157fc86dcba" />
 
-.<p align="center"> ![Views](https://komarev.com/ghpvc/?username=Wilfies&color=dba42d&style=flat&label=it's_just_us_again) </p>
+ㅤ<p align="center"> ![Views](https://komarev.com/ghpvc/?username=Wilfies&color=dba42d&style=flat&label=it's_just_us_again) </p>
 
 
 <p align="center">  ྀི ݂۫  ·  Ace  ᵒᵘ  he/it   ݂۫ <br>
