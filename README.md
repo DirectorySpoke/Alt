@@ -11,4 +11,4 @@ txt wip. all graphs made by me (DirectorySpoke). arts taken : twt , Pinterest <b
 dividers/resources : Owen's resources (Pinterest)
 <br>
 <br>
-<img width="735" height="582" alt="3350" src="https://github.com/user-attachments/assets/83efa284-78c2-49da-a6bf-b0ead573e135" />
+<img width="735" height="582" alt="3357" src="https://github.com/user-attachments/assets/239cb994-0a5c-4284-9051-4822190a096a" />
